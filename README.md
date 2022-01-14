@@ -1,2 +1,2 @@
-- Hi, I’m @KuuUwU! I am a dumbie and don't know how to do a lot of things.
+- Hi, I’m Kuu! I am a dumbie and don't know how to do a lot of things.
 - If y'all want to talk to me please contact my discord: Kuu#0621
